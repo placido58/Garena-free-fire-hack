@@ -1,6 +1,6 @@
 GARENA FREE FIRE DIAMOND HACK - GARENA FREE FIRE HACK DIAMONDS
 ~~~~~~~~~~~~
-UPDATED: 23-09-2021|{ONLINEUSERS:1209}
+UPDATED: 01-10-2021|{ONLINEUSERS:1209}
 
 
 5 minutes ago -  Free Fire Unlimited Diamonds Hack: 100% Working Generator $$ free fire diamond hack, free fire hack, how to get free fire diamonds, redeem codes generator hack without human verification.¶**
